@@ -1,6 +1,6 @@
 _Transcribed by [@jonathansampson][twitter], from [newspapers.com][source]._
 
-# The Hartford Daily Courant — AUGUST 6, 1916
+# The Hartford Daily Courant — August 6, 1916
 
 ### "THE OPTIMIST"<br>FREE NEGRO SLAVEOWNERS IN OLD VIRGINIA
 
