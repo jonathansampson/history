@@ -1,7 +1,7 @@
+_Transcribed by [@jonathansampson][twitter], from [newspapers.com][source]._
+
 # The Intelligencer
 ## WHEELING, OCTOBER 2, 1895
-
-_Transcribed by [@jonathansampson][twitter], from [newspapers.com][source]_
 
 ### The Negro's Opportunity.
 

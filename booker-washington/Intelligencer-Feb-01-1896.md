@@ -1,7 +1,7 @@
+_Transcribed by [@jonathansampson][twitter], from [newspapers.com][source]._
+
 # The Intelligencer
 ## WHEELING, FEBRUARY 1, 1896
-
-_Transcribed by [@jonathansampson][twitter], from [newspapers.com][source]_
 
 ELOQUENT SOTHRONS,
 
