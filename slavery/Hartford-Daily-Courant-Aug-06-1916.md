@@ -6,7 +6,7 @@ _Transcribed by [@jonathansampson][twitter], from [newspapers.com][source]._
 
 By Rev. Dr. Edwin Pond Parker.
 
-An [interesting article](Colored-Freemen-As-Slave-Owners-In-Virginia.pdf) in the July number of "[The Journal of Negro History](https://www.jstor.org/journal/jnegrohistory)" brings to light one of the peculiarities of negro slavery as it formerly existed in Virginia, which was new to the Optimist and which, it is safe to say, will be new to most of our readers; namely, the legal right of free negroes in Virginia to own negro slaves.
+An [interesting article](pdfs/Colored-Freemen-As-Slave-Owners-In-Virginia.pdf) in the July number of "[The Journal of Negro History](https://www.jstor.org/journal/jnegrohistory)" brings to light one of the peculiarities of negro slavery as it formerly existed in Virginia, which was new to the Optimist and which, it is safe to say, will be new to most of our readers; namely, the legal right of free negroes in Virginia to own negro slaves.
 
 In the second volume of [Hening's Statutes at Large of Virginia](https://books.google.com/books?id=SkIVAAAAYAAJ&pg=PA281#v=onepage&q&f=false) (1670) the following enactment appears:—
 
