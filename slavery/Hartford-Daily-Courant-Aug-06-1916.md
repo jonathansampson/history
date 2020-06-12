@@ -2,9 +2,9 @@ _Transcribed by [@jonathansampson][twitter], from [newspapers.com][source]._
 
 # The Hartford Daily Courant — August 6, 1916
 
-### "THE OPTIMIST"<br>FREE NEGRO SLAVEOWNERS IN OLD VIRGINIA
+### "The Optimist" — Free Negro Slaveowners in Old Virginia
 
-BY REV. DR. EDWIN POND PARKER.
+By Rev. Dr. Edwin Pond Parker.
 
 An [interesting article](Colored-Freemen-As-Slave-Owners-In-Virginia.pdf) in the July number of "[The Journal of Negro History](https://www.jstor.org/journal/jnegrohistory)" brings to light one of the peculiarities of negro slavery as it formerly existed in Virginia, which was new to the Optimist and which, it is safe to say, will be new to most of our readers; namely, the legal right of free negroes in Virginia to own negro slaves.
 
