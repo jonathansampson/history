@@ -16,7 +16,7 @@ The words "Christians" in this act obviously means persons of the white race. A 
 
 But the records of the County Court of Northampton contain the case of the free negro [Anthony Johnson](https://en.wikipedia.org/wiki/Anthony_Johnson_(colonist)) and his negro slave [John Casor](https://en.wikipedia.org/wiki/Anthony_Johnson_(colonist)#Casor_lawsuit). Anthony Johnson and his wife Mary were in Virginia as early as 1622. He was a respected man of wealth, to whom the state made a large grant of land in Northampton County.
 
-The manuscript records of the County Court contain the deposition of Captain Samuel Goldsmyth (March 8, 1654), the substance of which is that a negro called John Casor complained to him that Anthony Johnson was forcibly and wrongfully holding him in servitude. Casor claimed that he had come into Johnson's service for seven years of indenture, and that the term of his service had long ago ended. Johnson said he knew nothing of any indenture and that he had the negro for his life.
+The manuscript records of the County Court contain [the deposition of Captain Samuel Goldsmyth](https://www.encyclopediavirginia.org/Court_Ruling_on_Anthony_Johnson_and_His_Servant_1655) (March 8, 1654), the substance of which is that a negro called John Casor complained to him that Anthony Johnson was forcibly and wrongfully holding him in servitude. Casor claimed that he had come into Johnson's service for seven years of indenture, and that the term of his service had long ago ended. Johnson said he knew nothing of any indenture and that he had the negro for his life.
 
 Johnson decided to carry the case to the county court, to decide whether John Casor was a slave for life or a servant for seven years of indenture.
 
